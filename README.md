@@ -1,0 +1,1 @@
+# Adobe-Acrobat-activation-by-poil
